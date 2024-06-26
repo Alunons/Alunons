@@ -1,4 +1,4 @@
-**Seja be vindo ao meu perfil🌷**
+**Seja bem vindo ao meu perfil🌷**
 
 <!--
 Me chamo Nádia, mas pode me chamar de Ninah ou Nanah✨
